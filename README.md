@@ -1,4 +1,3 @@
 # gun-and-roses
 
-November Rain
-Dont Cry
+PARADSIE CITY
